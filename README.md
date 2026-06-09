@@ -1,3 +1,13 @@
-![](https://github.com/kurslvr/kurslvr/blob/c44242f289fbf69c498e23db9371b81452effc20/_%C9%94%CB%86%D0%B7_%CB%86_%CB%86c_-removebg-preview.png)
+<div align="center">
 
-　　　　　　[straw](https://lxvebites.straw.page/)　　　[rentry](https://rentry.co/sweetnilla)　　　[atabook](https://vanillacandles.atabook.org/)　　　[discord](https://guns.lol/teruaoi)
+![](https://komarev.com/ghpvc/?username=kittypiastri&color=f28633&label=papaya)
+
+^- ˕ -^ \
+<sup>*" i wanna be a feeling you can't fight "*</sup>
+
+![](https://github.com/kittypiastri/kittypiastri/blob/54be4e7530eecf7c4f1fa2f72b86b1a0cb1131d5/landoscar.gif)
+
+╰ f1 fans int !!　c+h always ♡　usually offtab, w2i ୭ \
+ʚ　straw　[ata](https://vanillacandles.atabook.org/)　prns.cc　[guns](https://guns.lol/landos1)　ɞ
+
+</div>
